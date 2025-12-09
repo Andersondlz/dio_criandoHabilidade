@@ -120,4 +120,4 @@ Perguntas que pode ser feitas para você?
 - **Tendências digitais**: IA e automação estão transformando tanto eventos quanto pequenas empresas; integrar tecnologia aumenta seu valor de mercado  
 
  
-1º Gosto de organizar bem as tarefas, e facilidade de criação de artes visuais
+
